@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://beammoosescissors.github.io/things-3-for-macos-wy08/ ) |
  |---------------------|----------------------:|
 
 
