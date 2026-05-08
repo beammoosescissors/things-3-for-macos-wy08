@@ -1,4 +1,4 @@
-
+Enhance Things 3 for macOS with ultimate Extension for Things 3 for macOS - goal tracking and export to PDF, the #1 extension. Includes goal tracking and export to PDF for a
 
 
 
